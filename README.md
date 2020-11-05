@@ -1,1 +1,1 @@
-Welcome and work hard!
+Welcome :)
